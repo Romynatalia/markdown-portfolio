@@ -1,1 +1,1 @@
-Replace this with a list of your favorite things.
+List of your favorite things: sun, coffee, books, training, yoga, meditation
